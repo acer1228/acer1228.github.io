@@ -10,4 +10,4 @@ This is a website all about me!
 - Minecraft
 - Pokemon Showdown
 
-[Want to see some code? Click here!] (codeelm)
+[Want to see some code? Click here!](https://acer1228.github.io/codeelm)
