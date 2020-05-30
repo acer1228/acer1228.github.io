@@ -27,9 +27,15 @@ This is a website all about me!
 
 ### Im not deaf! Yay
 #### Favorite songs 
-[What Did I do Wrong -Gingerpale](https://www.youtube.com/watch?v=iNYe2x018uI)
+- [What Did I do Wrong -Gingerpale](https://www.youtube.com/watch?v=iNYe2x018uI)
 
-[Someone You Loved -Lewis Capaldi ](https://www.youtube.com/watch?v=bCuhuePlP8o)
+- [Someone You Loved -Lewis Capaldi ](https://www.youtube.com/watch?v=bCuhuePlP8o)
  
- [Coldplay - Viva La Vida](https://www.youtube.com/watch?v=dvgZkm1xWPE)
+- [Coldplay - Viva La Vida](https://www.youtube.com/watch?v=dvgZkm1xWPE)
+
+## Wanna Contact Me?
+
+I only have Discord
+
+[Discord](https://discord.com/) : Tea#5199
 
