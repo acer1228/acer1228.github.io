@@ -15,4 +15,4 @@ This is a website all about me!
 
 
 
-! [Hi] (https://tse4.mm.bing.net/th?id=OIP.LVEhhj9WqXfUI4PRiKSTPwHaJ4&pid=Api&P=0&w=300&h=300)
+![Hi](https://tse4.mm.bing.net/th?id=OIP.LVEhhj9WqXfUI4PRiKSTPwHaJ4&pid=Api&P=0&w=300&h=300)
