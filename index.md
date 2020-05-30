@@ -10,9 +10,4 @@ This is a website all about me!
 - Minecraft
 - Pokemon Showdown
 
-
-
-
-
-
-![Hi](https://tse4.mm.bing.net/th?id=OIP.LVEhhj9WqXfUI4PRiKSTPwHaJ4&pid=Api&P=0&w=300&h=300)
+[Want to see some code? Click here!] (codeelm
