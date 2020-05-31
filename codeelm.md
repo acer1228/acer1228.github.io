@@ -6,6 +6,9 @@ I Have Coded a few things if you want to check it out or go ahead and edit it he
 [Undertale fan? Check out my creation!](https://macoutreach.rocks/share/ab4653da)
 [Here's the code!](https://1drv.ms/w/s!AhI2_rXFO4xoo2NTgiF6PbROZP6G)
 
+[More Undertale!](https://www.youtube.com/watch?v=FfZil5wkZ1M)
+[More code!](https://hwcdsb-my.sharepoint.com/personal/tambilogi593_hwcdsb_ca/_layouts/15/Doc.aspx?sourcedoc={ce07aa21-15a7-4ca2-854a-aaa5414de4d6}&amp;action=embedview&amp;wdStartOn=1)
+
 Imagine you're on the highway, driving though the day, driving through the night, Well you wont! I made somthing for you!
 
 [Day, Note: They dont come back](https://macoutreach.rocks/share/7f1baa63)
