@@ -14,8 +14,6 @@ This is a website all about me!
 
 [Want to see some code? Click here!](https://acer1228.github.io/codeelm)
 
-[Fan of Undertale? Check this out! Ill put the code in the link above.](https://macoutreach.rocks/share/ab4653da)
-
 [Want to play Pokemon Showdown? Click here and learn about it](https://acer1228.github.io/show)
 
 ### I like fruit, do you?
@@ -24,6 +22,7 @@ This is a website all about me!
 - Watermelon
 - Tomato, [yes its a fruit wanna learn why? Click here](https://www.youtube.com/watch?v=XaKDp3ijSx0)
 - Cantaloupe
+- Banana
 
 ### Im not deaf! Yay
 #### Favorite songs 
@@ -32,6 +31,10 @@ This is a website all about me!
 - [Someone You Loved -Lewis Capaldi ](https://www.youtube.com/watch?v=bCuhuePlP8o)
  
 - [Coldplay - Viva La Vida](https://www.youtube.com/watch?v=dvgZkm1xWPE)
+
+- [Furret Walk](https://www.youtube.com/watch?v=xzD0M1MXGqY)
+
+-[Help! Oh Well...](https://www.youtube.com/watch?v=FfZil5wkZ1M)
 
 ## Wanna Contact Me?
 
