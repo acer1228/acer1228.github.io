@@ -34,7 +34,21 @@ This is a website all about me!
 
 - [Furret Walk](https://www.youtube.com/watch?v=xzD0M1MXGqY)
 
--[Help! Oh Well...](https://www.youtube.com/watch?v=FfZil5wkZ1M)
+- [Help! Oh Well...](https://www.youtube.com/watch?v=FfZil5wkZ1M)
+
+- [St.Arnaud - A Sweet Song](https://www.youtube.com/watch?v=W9XiFzUP_Es)
+
+- [Ideal World](https://www.youtube.com/watch?v=y08r_H_wJ2Q)
+
+- [Life is Fun](https://www.youtube.com/watch?v=CAb_bCtKuXg)
+
+### Hobbies!
+#### I Have Hobbies!
+- Video games
+- Archery
+- Reading
+- Piano
+
 
 ## Wanna Contact Me?
 
