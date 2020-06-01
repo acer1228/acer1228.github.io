@@ -49,7 +49,6 @@ This is a website all about me!
 - Reading
 - Piano
 
-
 ## Wanna Contact Me?
 
 I only have Discord
