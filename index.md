@@ -14,7 +14,6 @@ This is a website all about me!
 
 [Want to see some code? Click here!](https://acer1228.github.io/codeelm)
 
-[Want to play Pokemon Showdown? Click here and learn about it](https://acer1228.github.io/show)
 
 ### I like fruit, do you?
 #### Favorite fruits
@@ -54,4 +53,3 @@ This is a website all about me!
 I only have Discord
 
 [Discord](https://discord.com/) : Tea#5199
-
