@@ -11,9 +11,9 @@ I Have Coded a few things if you want to check it out or go ahead and edit it he
 
 Imagine you're on the highway, driving though the day, driving through the night, Well you wont! I made somthing for you!
 
-[Day, Note: They dont come back](https://macoutreach.rocks/share/7f1baa63)
+[Day](https://macoutreach.rocks/share/2a153700)
 
-[Night, Note: They dont come back](https://macoutreach.rocks/share/4bbcda2c)
+[Night](https://macoutreach.rocks/share/2afb83b0)
 
 [Day and Night code](https://1drv.ms/w/s!AhI2_rXFO4xoo2XyRAzoeZrhDVk2)
 
