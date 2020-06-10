@@ -17,4 +17,9 @@ Imagine you're on the highway, driving though the day, driving through the night
 
 [Day and Night code](https://1drv.ms/w/s!AhI2_rXFO4xoo2XyRAzoeZrhDVk2)
 
+![Pirates](https://i.imgflip.com/2zy2ar.png)
+
+[Dun,Dun,Dun a Dun,Dun Dun Dun Dun Dun!](https://macoutreach.rocks/share/dd524736) 
+[Code](https://mohawkcollege365-my.sharepoint.com/:w:/g/personal/000787640_mohawkcollege_ca/EXRz98Yk6AFMhQ8o7vse0-8BZv32jXZlz_5mzIPBxZXdcg?e=gdoayG)
+
 [Wanna go back? Click here!](https://acer1228.github.io/)
